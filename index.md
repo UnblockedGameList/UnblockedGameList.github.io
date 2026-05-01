@@ -37,7 +37,3 @@ WEBSITE: [nettleweb](https://nettleweb.pages.dev/) - only flash games work, also
 WEBSITE: [Nblocked Games](https://sites.google.com/view/nblocked/home) - games
 
 WEBSITE: [Unblocked Games](https://sites.google.com/site/yourunblockedgames/) - some good unblocked games
-
-
-
-# MADE BY Keith B, Cason L, and Azriel A
