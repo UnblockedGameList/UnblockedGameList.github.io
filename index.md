@@ -6,8 +6,6 @@ WEBSITE: [OvO Unblocked](https://ovoclassic-pro.github.io/) - OVO + a lot others
 
 WEBSITE: [CalcSolver](https://calcsolver.net/) - Turn on code mode then put in 0000
 
-WEBSITE: [genizymath](https://genizymath.github.io/) - Prob best unblocked site
-
 WEBSITE: [Cloudmoon](https://260326moon.firebaseapp.com/) - Cloud gaming for free
 
 WEBSITE: [SHSGAMES](https://shsgames.github.io/?search=) - CROWNED FOR MOST GAMES👑
