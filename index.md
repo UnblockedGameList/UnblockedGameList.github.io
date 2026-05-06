@@ -41,3 +41,11 @@ WEBSITE: [Unblocked Games](https://sites.google.com/site/yourunblockedgames/) - 
 WEBSITE: [Unblocked Games 21](https://iammister1.github.io/unblocked-games-21/) - wow, a very good collection
 
 WEBSITE: [SimpleGime](https://bighummus69.github.io/simplegimes/) - REALLY GOOD CHECK IT OUT 
+
+WEBSITE: [Jet Yeh's](https://jetyehs.github.io/) - im gonna stop making these captions unless theres something important
+
+WEBSITE: [WIP](https://wip-main.github.io/gameboy-games.html)
+
+WEBSITE: [Hypackel](https://hypackellite1.github.io/)
+
+WEBSITE: [3kho](https://3kho.github.io/)
